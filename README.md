@@ -1,6 +1,4 @@
-<a href='https://en.wikipedia.org/wiki/Vercingetorix#Battle_of_Alesia'>
-  <img alt='Vercingetorix throws down his arms at the feet of Julius Caesar' src='https://github.com/f3mm3ph1l3/f3mm3ph1l3/assets/152091174/28fc3397-3b4e-4edd-b5fe-f22914e85b25'>
-</a>
+<img alt='Evil tr4nsf3mm3 queen in her dark castle' src='https://github.com/f3mm3ph1l3/f3mm3ph1l3/assets/152091174/92a2272b-19a7-4627-b784-586147ed4c2a'>
 <h1>
   VENI. VIDI. VICI. 💀
 </h1>
